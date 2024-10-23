@@ -5,4 +5,4 @@ Chris F - Signing In
 
 Ronald T - Present
 
-Sorawat (James) - Check in
+Sorawat (James) - Check-in
